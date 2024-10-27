@@ -8,3 +8,5 @@ Sylvester's contributions have been invaluable in advancing public health outcom
 
 Sylvester's innovative approach, combined with his ability to execute complex projects with precision, makes him an outstanding professional in the field of public health. I highly recommend Sylvester for any role that requires strategic thinking, effective implementation, and a deep understanding of community health dynamics. His impact on public health initiatives is both significant and far-reaching".
 
+Check my Linkedin
+
